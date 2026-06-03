@@ -32,7 +32,7 @@ Each release includes:
 ## 🔗 Related Resources
 
 - [Marie Landry Spy Shop](https://marielanrdryspyshop.com)
-- [Landry Industries](https://landryindustries.com)
+- [Landry Industries](https://landryindustries.ca)
 
 ## 📞 Support
 
